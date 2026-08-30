@@ -1,2 +1,0 @@
-# Stream-Faizan-Online
-Enjoy
